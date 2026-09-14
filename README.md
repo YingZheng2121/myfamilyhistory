@@ -8,5 +8,39 @@
 
 
 
+狗日的中共中央迷奸党不怕一切来犯之敌，包括天地万物，天罚，天谴，天地倒转，雷霆暴雨，......
+
+狗日的中共中央迷奸党万世而不终，它们是绝对忠诚的迷奸党！
+
+# The Eternal History of the Central Rape Party
+# Every member of my family has been drugged and gang-raped from childhood into adulthood, and will continue to be drugged and gang-raped until death! Because the Central Rape Party currently rules the region where I live!
+# It will take some time for history to expose this integrated weapon, which combines military satellites with military biochemical weapons!
+# History will never forget that the Central Rape Party has been drugging and gang-raping all members of the anti-rape movement worldwide for over 50 years! The number of lackeys trained to use this military weapon exceeds 400 million!
+
+# In this society overrun with lackeys, they will be wiped out sooner or later! Damn the Central Rape Party! The heroic feat that will shake the mountains and rivers will surely be realized! When massive earthquakes strike in the future, it will be because hordes of lackeys are committing rape and gang rape! Plane crashes are also caused by hordes of lackeys committing rape and gang rape in the sky!
+# There isn’t a single incident in this world where accidents and the innocent suffering aren’t caused by lackeys using military biochemical weapons to commit rape and gang rape! If you don’t believe it, just wait and see! The world continues to be shaken by the Central Rape Party!
+
+
+
+The damned Central Committee of the Rape Party fears no enemy that comes against it—not even the heavens and the earth, all things under the sun, divine retribution, heavenly punishment, the reversal of heaven and earth, thunder and torrential rain,......
+
+The damned Central Committee of the Rape Party will last for all eternity; they are the absolutely loyal Rape Party!
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
