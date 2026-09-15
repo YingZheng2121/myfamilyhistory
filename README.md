@@ -29,6 +29,20 @@ The Central Rape Party’s military intelligence system uses military biochemica
 Starting with Jiang Zemin, it has been using military biochemical weapons worldwide to force all members of the global anti-Rape Party movement—including children—into “nuclear houses” (houses contaminated with nuclear radiation).
 ）
 
+
+中央迷奸党，1992年后江泽民下令使用军事生化武器给全世界的所有反迷奸党所有成员包括小孩剪掉大脑白质不允许变聪明，不允许反抗非正义事业一辈子！（The Central Rape Party: After 1992, Jiang Zemin ordered the use of military biochemical weapons to destroy the white matter in the brains of all members of anti-Rape Party groups worldwide—including children—so they could never become intelligent and would be prevented from resisting unjust causes for the rest of their lives!）
+
+
+中央迷奸党下有一支使用军事生化武器迷奸人民的军队！
+（Under the Central Rape Party, there is an army that uses military biochemical weapons to rape the people!）
+
+
+我全家要断子绝孙了，必须留下家族遇害历史！
+（My entire family is about to die out—we must preserve the history of the murders in our family!）
+
+
+
+
 # The Eternal History of the CCP’s “Drug-Rape Party”
 # Every member of my family has been drugged and gang-raped from childhood into adulthood, and will continue to be drugged and gang-raped until death! Because the region where I currently live is under the rule of the CCP’s “Drug-Rape Party”!
 # It will take some time for history to expose this integrated weapon that combines military satellites with military biochemical weapons!
