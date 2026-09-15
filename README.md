@@ -19,6 +19,8 @@
 每个时间点都是我全家所有人被军事情报系统派大量走狗迷奸轮奸！（At every single moment, every member of my family was drugged, raped, and gang-raped by hordes of thugs sent by the military intelligence system!）
 
 
+中央迷奸党军事情报系统使用军事生化武器随时随地派走狗迷奸轮奸我全家！（
+The Central Rape Party’s military intelligence system uses military biochemical weapons to send its lackeys to drug and gang-rape my entire family anytime, anywhere!）
 
 
 
