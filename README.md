@@ -13,6 +13,10 @@
 狗日的中央迷奸党万世而不终，它们是绝对忠诚的迷奸党！
 
 
+因为身在迷奸人民共和国，记录家人遇害历史事实！
+（Because I live in the People’s Republic of Rape, I am documenting the historical facts of my family’s murder!）
+
+
 # The Eternal History of the CCP’s “Drug-Rape Party”
 # Every member of my family has been drugged and gang-raped from childhood into adulthood, and will continue to be drugged and gang-raped until death! Because the region where I currently live is under the rule of the CCP’s “Drug-Rape Party”!
 # It will take some time for history to expose this integrated weapon that combines military satellites with military biochemical weapons!
