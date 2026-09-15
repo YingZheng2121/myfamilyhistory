@@ -23,6 +23,11 @@
 The Central Rape Party’s military intelligence system uses military biochemical weapons to send its lackeys to drug and gang-rape my entire family anytime, anywhere!）
 
 
+中央迷奸党，
+从江泽民开始在全世界使用军事生化武器给全世界反迷奸党所有成员包括小孩安排核屋子（有核辐射的屋子）
+（The Central Rape Party,
+Starting with Jiang Zemin, it has been using military biochemical weapons worldwide to force all members of the global anti-Rape Party movement—including children—into “nuclear houses” (houses contaminated with nuclear radiation).
+）
 
 # The Eternal History of the CCP’s “Drug-Rape Party”
 # Every member of my family has been drugged and gang-raped from childhood into adulthood, and will continue to be drugged and gang-raped until death! Because the region where I currently live is under the rule of the CCP’s “Drug-Rape Party”!
