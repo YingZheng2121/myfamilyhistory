@@ -43,7 +43,7 @@ Starting with Jiang Zemin, it has been using military biochemical weapons worldw
 我全家要断子绝孙了，必须留下家族遇害历史！
 （My entire family is about to die out—we must preserve the history of the murders in our family!）
 
-百年目标包含：走狗使用军事生化武器迷奸轮奸全世界反迷奸党家庭所有成员百年，也就是到死！
+百年目标包含：走狗使用军事生化武器迷奸轮奸全世界反迷奸党家庭所有成员百年，也就是迷奸到死！
 （The “Century-Long Goal” includes: having lackeys use military biochemical weapons to drug and gang-rape all members of families belonging to the Global Anti-Drug-Rape Party for a century—that is, until they die!）
 
 
