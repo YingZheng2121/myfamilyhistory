@@ -16,6 +16,11 @@
 因为身在迷奸人民共和国，记录家人遇害历史事实！
 （Because I live in the People’s Republic of Rape, I am documenting the historical facts of my family’s murder!）
 
+每个时间点都是我全家所有人被军事情报系统派大量走狗迷奸轮奸！（At every single moment, every member of my family was drugged, raped, and gang-raped by hordes of thugs sent by the military intelligence system!）
+
+
+
+
 
 # The Eternal History of the CCP’s “Drug-Rape Party”
 # Every member of my family has been drugged and gang-raped from childhood into adulthood, and will continue to be drugged and gang-raped until death! Because the region where I currently live is under the rule of the CCP’s “Drug-Rape Party”!
